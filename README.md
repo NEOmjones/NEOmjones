@@ -1,6 +1,6 @@
 - 🐶 Hi, I’m @NEOmjones 😎
-- 🎶 I’m interested in music, anime, computer programming💻, electrical engineering⚡, building Gundam models🤖, hanging out with friends, and some mild video game playing🎮🕹. Mostly Pokémon.
+- 🎶 I’m interested in music🎶, anime📺, computer programming💻, electrical engineering⚡, building Gundam models🤖, hanging out with friends🧑🏻‍🤝‍🧑🏻, and some mild video game playing🎮🕹. Mostly Pokémon.
 - 🌱 I’m currently learning how to play the bass guitar 🎸.
 - 📫 The best way for you to reach me is via email 📧: majones@neology.com
 - 😄 Pronouns: He/Him/Pup
-- ⚡ Fun fact: I'm only 34 but, I've been programming for over twenty years. 🤓👨‍🔬
+- ⚡ Fun fact: I'm only 35 but, I've been programming for over twenty years. 🤓👨‍🔬
